@@ -28,3 +28,4 @@
 ## 📫 Kontak
 - Email: mhdraqhilhalimvizar@gmail.com  
 - LinkedIn: [linkedin.com/in/mhd-raqhil-halim-vizar](https://www.linkedin.com/in/mhd-raqhil-halim-vizar/)  
+- Instagram: https://www.instagram.com/rql.vizar06
